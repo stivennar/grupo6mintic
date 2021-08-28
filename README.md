@@ -1,1 +1,1 @@
-# grupo7mintic
+# grupo6mintic
